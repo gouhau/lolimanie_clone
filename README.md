@@ -1,2 +1,2 @@
 # lolimanie
-dikobraz
+OUr game is dikobraz and sugoma
